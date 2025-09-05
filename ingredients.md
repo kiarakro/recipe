@@ -1,3 +1,4 @@
+Let's begin!
 2 tablespoons extra-virgin olive oil
 1 yellow onion
 1/2 teaspoon sea salt
@@ -8,3 +9,4 @@
 1 teaspoon grated fresh ginger
 3 to 4 cups vegetable (or chicken) broth
 freshly ground black pepper
+Enjoy my recipe!
